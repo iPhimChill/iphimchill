@@ -1,1 +1,1 @@
-<a href="https://iphimchillzz.net">PhimChill</a> là website xem <a href="https://iphimchillzz.net">phim mới</a> nhanh nhất
+<a href="https://iphimchillzz.net">PhimChill</a> là website xem <a href="https://iphimchillzz.net">phim mới</a> nhanh nhất hoặc bạn có thể truy cập trang <a href="https://motphim1.com">Motphim</a> để xem phim miễn phí.
